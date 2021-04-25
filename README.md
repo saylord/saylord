@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @saylord or you can call me ~alich~
+- 🌱 I’m a student of Astana IT University
