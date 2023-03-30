@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @saylord or you can call me alich~
-- 🌱 I’m a student of Astana IT University
-- 🍃 Btw, have a nice day :)
+- 🌱 I’m a student of Astana IT University and Alem School
